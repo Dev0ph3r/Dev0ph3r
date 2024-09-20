@@ -1,0 +1,5 @@
+- 👋 Hi, I'm @Dev0ph3r
+- 👀 I'm interested in motorcycles and video games, mainly Pokémon.
+- 🌱 I am currently learning Dutch.
+- 📫 How to reach me: just visit https://maug.is/.
+- ⚡ Fun fact: I got a Pikachu tattoo on my ankle.
